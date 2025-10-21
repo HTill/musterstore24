@@ -1,0 +1,2 @@
+# musterstore24
+Datenschutzerklärung
